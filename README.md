@@ -1,1 +1,1 @@
-# skrypton-13th-dec-2023
+# skrypton-13th-dec
